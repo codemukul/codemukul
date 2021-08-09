@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on projects based on web technologies.
 - 🤔 I’m looking for help with new project ideas.
 - 💬 Ask me about anything you like except something personal.
-- 📫 How to reach me: mukulkumargupta@outlook.in (no personal messages please)
+- 📫 How to reach me: codemukul@outlook.com (no personal messages please)
 - 😄 Pronouns: he/him/his .
 - ⚡ Fun fact: Thoughts are dimensionless.
 
